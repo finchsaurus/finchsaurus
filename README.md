@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/f2116d11-0534-449a-8528-0c5d9c8026fb" />
+<img src="https://i.pinimg.com/736x/76/0d/65/760d65f931193737e6a39ef5fcf61b77.jpg" />
 <p align="center">
                           read strawpage + pronouns for more info | sign ata !
   <p align="center">
