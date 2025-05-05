@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.pinimg.com/originals/14/f9/68/14f96893670fccc793e65fde7e18a31e.gif" />
+<img src="https://media1.tenor.com/m/uPvFz9YOyuwAAAAC/marvel-rivals-mvp.gif" />
 <p align="center">
                           read strawpage + pronouns for more info | sign ata !
   <p align="center">
