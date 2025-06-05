@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://media1.tenor.com/m/DCRbO1Pjl_YAAAAC/human-torch-johnny-storm.gif" />
+<img src="https://media1.tenor.com/m/6KZbH_deVtUAAAAd/%D0%B2%D0%BE%D1%81%D0%BF%D1%8B%D0%BB%D0%B0%D0%BB-ignited.gif" />
 <p align="center">
                           read strawpage + pronouns for more info | sign ata !
   <p align="center">
